@@ -1,0 +1,2 @@
+- 👋 Hi, I’m suntake
+- i use this for vs code lmao 
